@@ -1,9 +1,9 @@
 ## Hi there, I'm Nam
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other developers for a startup
-- 🥅 2021 Goals: Find a good boss 😄
+- 🥅 2022 Goals: Graduate from uni 😄
 - 🤔 Interests: ️🏀 ️🎶 🍻
-- ⚡ Fun fact: I can drink from noon til night 😂
+- ⚡ Fun fact: I can't sit 1 place for hours 😂
 
 ### Connect with me:
 
